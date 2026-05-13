@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe InDesign for macOS with advanced Panel for Adobe InDesign for macOS - perspective warp and typography tools, the #1 panel. Includes perspective warp and typography
 
 
 
